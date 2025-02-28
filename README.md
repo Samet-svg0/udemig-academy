@@ -16,7 +16,8 @@ Modern ve Şık Tasarım: Basit, temiz ve kullanıcı dostu dağıtım, kullanı
 
 # Ekran goruntusu 
 
-![bandicam2025-02-1321-42-19-045-ezgif com-video-to-gif-converter](https://github.com/user-attachments/assets/9fe1819c-cf25-44e6-be02-61b594d97aa5)
+
+![bandicam2025-03-0100-33-24-729-ezgif com-crop (1)](https://github.com/user-attachments/assets/eebe5135-5d3c-43c4-87a5-b9c46d0cb157)
 
 
 
